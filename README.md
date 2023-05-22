@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Carrera: DESARROLLO DE  SOFTWARE
+
+INSTITUTO: SENATI
